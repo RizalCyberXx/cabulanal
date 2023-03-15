@@ -28,7 +28,7 @@ FollowJugaYahNgentd
 
 
 
-AFG6-G4SK-TWR9-TKK2
+
 
 
 
